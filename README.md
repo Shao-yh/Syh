@@ -1,2 +1,0 @@
-# Syh
-Student
